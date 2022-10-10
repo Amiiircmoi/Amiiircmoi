@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Amiiircmoi
+- 👨‍🎓 I'm a french student in web development 
+- 👀 Find more on my social medias ...
